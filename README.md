@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Shahzaib
+- 👀 I’m interested in Artificial Intelligence
+- 🌱 I’m currently doing Masters of Science in Artificial Intelligence
+- 💞️ I’m looking to collaborate on any AI projects
+- 📫 Reach me out on Facebook or Instagram at sbaig3229 
